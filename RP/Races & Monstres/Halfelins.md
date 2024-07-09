@@ -1,0 +1,2 @@
+Ils ressemblent à de petits humains, mesurant entre 1m et 1m30, ils sont fins et
+agiles. Ils vivent le plus souvent dans des communautés exclusivement halfelines, de petits villages creusés dans les collines.

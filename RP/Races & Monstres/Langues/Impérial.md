@@ -1,0 +1,1 @@
+Langue officielle de l'[[Empire humain]]

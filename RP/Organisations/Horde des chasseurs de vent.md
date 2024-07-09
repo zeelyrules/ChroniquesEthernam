@@ -1,0 +1,4 @@
+Clan nomade "barbare"comprenant environ 200 personnes. A tendance à errer dans l'empire humain mais voyagent parfois en dehors. Ils se considèrent comme libres et les frontières ne sauraient pas les arrêter. Ils ont un code d'honneur assez strict regardant le combat. On a entendu des légendes au sujet de [[Barolt]], leur chef et leur plus fort membre. Certaines semblent véridiques, d'autres ne sont probablement que des fables.
+Ils se definissent comme proches de la nature.
+"Seul le tres fort peut battre le fort sans le tuer"
+La plupart des chasseurs de vent naissent dans la horde, mais il arrive que les villages traverses aient leurs lot de courageux prets a tenter leur chance avec le clan.

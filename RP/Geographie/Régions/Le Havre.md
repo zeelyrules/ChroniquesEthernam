@@ -1,0 +1,1 @@
+Très grande île proche du continent qui a été utilisée pour mettre les populations civiles à l'abri.

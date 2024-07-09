@@ -1,0 +1,3 @@
+Peuple originaire de [[Thay]], ils sont connus pour leurs manigances à grande échelle et leurs utilisations de magies interdites.
+Groupe essentiellement humain, ils ont cependant vu de nombreux elfes les rejoindre récemment.
+Ils sont responsables de l'[[Expérience Thayenne]] qui a créé le [[Désert de la flétrissure]] et sont les instigateurs du [[Second complot Thayen]] qui a fait croire à une menace Yffrite sur le plan tout entier.

@@ -1,0 +1,2 @@
+Physiquement semblables aux humains, les elfes des bois sont toutefois caractérisés
+par leur taille (majoritairement entre 1m70 et 2m) leurs longues oreilles pointus, des yeux de couleurs souvent très claires, ainsi que pour les mâles une incapacité à avoir de la barbe. Ils peuvent s'organiser en société mais restent par leur nature des êtres très libres. Ils élisent la plupart du temps domicile dans les forets où ils vivent en communion avec la nature.

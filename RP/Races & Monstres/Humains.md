@@ -1,0 +1,2 @@
+La race des hommes telle qu'on la connaît. Ils s'organisent très souvent en société,
+qu'il s'agisse de villes, de royaumes ou de tribus. Ils favorisent pour s'installer les plaines ainsi que les zones proches de points d'eau.

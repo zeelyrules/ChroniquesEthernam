@@ -1,0 +1,1 @@
+Royaume de l'[[Empire humain]] qui a récemment changé de nom récemment pour devenit le [[Grand empire conquérant]]. Les habitants pensent que l'ordre de nommage vient de l'empire.

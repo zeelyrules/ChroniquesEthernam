@@ -1,0 +1,1 @@
+Masse de matière animée d'environ 3 mètres de diamètre capable de communiquer par Télépathie et de créer des tentacules dont elle se sert pour attaquer et tenter d'empaler ses proies. La sphère ne semble pas vouloir se déplacer pour poursuivre d'éventuels fuyards.

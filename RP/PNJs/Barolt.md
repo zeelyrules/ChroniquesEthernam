@@ -1,0 +1,1 @@
+Legendaire chef de la **Horde des chasseurs de vent**, desormais mort, il repose sur la montagne du desastre avec sa hache. Il a perdu la vie dans un defi contre sa fille [[Anhia]].

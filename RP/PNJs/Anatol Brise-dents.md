@@ -1,0 +1,2 @@
+Solide gaillard d'environ 1m70 (peut-être un demi-nain ?), lieutenant de l'armée impériale
+1ère rencontre avec la compagnie dans le [[Désert de la flétrissure]] avant la [[Bataille de la trahison thayenne]], durant laquelle il commandait l'unité.

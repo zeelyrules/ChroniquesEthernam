@@ -1,0 +1,2 @@
+Ils ressemblent énormément aux [[Elfes des bois]] si bien qu'il n'est pas rare de les
+confondre. Les fins observateurs remarquerons toutefois une peau légèrement grisâtre et des yeux aux couleurs généralement plus sombres. Ils vivent rarement seuls et préfèrent la présence des peuples raffinés et savants au point qu'ils peuvent être considérés comme hautains par certaines personnes. Ils choisissent souvent comme lieu de vie des endroits calmes et à l'écart du monde où ils forment de petites communautés.

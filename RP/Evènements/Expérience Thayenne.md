@@ -1,0 +1,1 @@
+Expérience organisée par les thayens qui aurait mal tourné et qui a privé de vie une immense partie du continent que l'on connait désormais sous le nom de [[Désert de la flétrissure]].

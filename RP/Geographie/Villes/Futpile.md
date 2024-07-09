@@ -1,0 +1,1 @@
+Capitale de [[Dayneros]] et de l'[[Empire humain]]
